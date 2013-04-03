@@ -1,4 +1,4 @@
-socccially
+soCCCially
 ==========
 
-socccially..The Enterprise Social Network
+soCCCially...Connect..Converse..Collaborate
